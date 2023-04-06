@@ -1,3 +1,4 @@
 # Commander GPT Releases
 
-Please support this project by buying in this website: https://nicolaslopezj.gumroad.com/l/commander-gpt
+Please consider supporting this project by making a purchase on the following website: https://nicolaslopezj.gumroad.com/l/commander-gpt
+
